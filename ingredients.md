@@ -1,0 +1,1 @@
+The basic ingredients of pastry dough are flour, sugar, milk, shortening, baking powder and eggs. When these ingredients are combined to form a dough that is flakier or crumblier than bread dough.

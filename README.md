@@ -1,0 +1,1 @@
+The recipe is of making Pastry.Pastry is a sweet dish. It is easily available in bakery. There are many tyoes of Pastry like Choco chp Pastry,hortcrust pastry, filo pastry, choux pastry, flaky pastry and puff pastry.
